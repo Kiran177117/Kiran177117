@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 Nan Bagge Nodri Pa:
 I am Bca student<br>
 
 
